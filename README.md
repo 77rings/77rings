@@ -10,14 +10,4 @@
 <br><br><b>i hide freely.</b> if you're weird/annoying you're gone
 <br>not ok with c+h unless we're friends, <b>don't touch me</b>
 <br><br><img src="https://media.discordapp.net/attachments/903364339464044575/1101871119583154217/EFB9C0AA-C657-4BC0-A5E6-DB1810082D69.gif" width="400px">
-  </p>
-  <br> ++ MONA <s>MYTHOS</s> <img src= "https://i.imgur.com/HMSVQX9.gif"> they \ it \ luv \ moon
-</br>
-<s>PRO</s>F. DX <i>OSDD</i>-<b>1B</b> . <b><s>TRAUMA</s>GENIC</b> <img src= "https://i.imgur.com/wYTeoyp.gif"> <i>INTROJ. HEAVYY</i>
-<br>
-<a href="https://en.wikipedia.org/wiki/Messiah_complex">savior</a> &&. superior<a href="https://en.wikipedia.org/wiki/Superiority_complex">ity</a> complex <img src="https://64.media.tumblr.com/3f3c34dac5d00f1b84267355d0359402/f78da13d0af7a7dc-90/s75x75_c1/c91321da7e7bdddbe507da8ee16329341c4eb39f.gifv"> <i>AU</i>DHD <s>BPD</s> + UNLISTED
-</br>
-<i>TOUCH</i> COM<s>FORT</s> <img src="https://i.imgur.com/847xUil.gif"> <b><i>ALWAYS</i></b> C+H <i>FRIENDLY</i> <sub>mostly afk , whisper to int</sub>
-<br>
-WE DO <bold>NOT</bold> ASSOCIATE \ SUPPORT DU .
 </p>

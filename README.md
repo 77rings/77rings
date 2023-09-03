@@ -2,7 +2,7 @@
 <img src="https://cdn.discordapp.com/attachments/744245101529661451/1147615898044203139/Untitled83_20230902143528.png" width="520px">
 <br><br>glitchy/mob/dante (<a href="https://en.pronouns.page/@WarMachine">+</a>) they/it autistic intp aroace
 <br><a href="https://bloodystream.straw.page">more about me</a> :3<br>
-  <img src="https://64.media.tumblr.com/dd12243ecc9b525df9d5b74b771a8077/c15dd26efcc8af51-17/s640x960/f94453c2a5496cd4f6ead6135a78f2742b842eb0.gif" width="420px">
+  <img src="https://enchantments.carrd.co/assets/images/gallery09/23c0f495.gif?v=82b4b006" width="420px">
 <br>i like phighting, madcom, ultrakill, jjba, fnf and mp100
 <br><a href="https://rentry.co/v1true"> way more</a> interests here if you wanna know
 <br><br><b>whisper to interact</b>, i'm offtab a lot. i'm not very talkative
